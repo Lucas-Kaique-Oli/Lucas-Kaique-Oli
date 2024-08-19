@@ -1,5 +1,5 @@
-## Please have a seat and hear it.
-### If you wanna talk with me
+## Please have a seat, you will nedd it.
+### My email if you wanna talk with me
 lukaique005@gmail.com
 
 - So how's your day, good enough for you?
